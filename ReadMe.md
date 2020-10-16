@@ -1,1 +1,1 @@
-hello this is new readme
+hello, here you have new wallpaper app, enjoy!!
